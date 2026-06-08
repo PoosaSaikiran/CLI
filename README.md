@@ -5,7 +5,7 @@ s
 saa
 ssa
 aaa
-a
+aa
 a
 a
 a
