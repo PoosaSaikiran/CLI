@@ -1,13 +1,1 @@
-aaaaa#CLl
-s
-s
-sag
-saaaa
-ssa
-aaaaa
-aaa
-aaa
-aaaa
-ag
-ag
-a
+#CLl
