@@ -10,5 +10,5 @@ g
 g
 b
 bb
-bo
+boo
 b
