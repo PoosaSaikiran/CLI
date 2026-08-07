@@ -1,14 +1,1 @@
 #CLl
-g
-g
-g
-g
-g
-g
-g
-g
-g
-b
-bb
-boo
-b
