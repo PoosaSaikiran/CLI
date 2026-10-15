@@ -1,10 +1,1 @@
 #CLl
-k
-k
-k
-k
-k
-j
-j
-j
-j
