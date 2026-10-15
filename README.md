@@ -1,14 +1,1 @@
 #CLl
-o
-o
-o
-o
-o
-o
-o
-o
-o
-oo
-o
-o
-v
